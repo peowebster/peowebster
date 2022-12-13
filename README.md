@@ -1,3 +1,3 @@
 Name: Peo M. Webster
-Pronouns: She/they
+Pronouns: Any
 Current project: TBA
